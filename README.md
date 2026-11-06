@@ -1,0 +1,1 @@
+# Generatorlar-bilan-dangasa-sonlar-konveyeri
